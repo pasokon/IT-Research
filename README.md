@@ -25,6 +25,7 @@ from the future year 8000. The objective is to network with a hypothetical inter
 spacecraft Supremacy must be placed next to the electromagnetic field detector (EMF - use a K2). The participant must be 
 monitored with the Emotiv EEG headband during the visualization process. This can be accomplished while standing in front of the  view of the ocean waves or the bay in daylight.
 
+Project inspired from the research from the following cited works.
 
 Works Cited
 
