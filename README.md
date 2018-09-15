@@ -26,3 +26,9 @@ spacecraft Supremacy must be placed next to the electromagnetic field detector (
 monitored with the Emotiv EEG headband during the visualization process. This can be accomplished while standing in front of the # view of the ocean waves or the bay in daylight.
 
 
+Works Cited
+
+Vallee, Jacques, PhD. Jacques Vallee: Implications of UFO Phenomena (excerpt) - Thinking Allowed w/ Jeffrey Mishlove. Retrieved from http://www.thinkingallowed.com/2jvallee.html. Full interview on DVD.
+
+Rubik, Beverly, PhD Biophysicist. Psychotronics with Beverly Rubik. Retrieved from https://www.newthinkingallowed.org/psychotronics-with-beverly-rubik/. 
+
