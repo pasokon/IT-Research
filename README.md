@@ -20,10 +20,10 @@ Jupiter-sized spacecrafts. The teleportation of spacecrafts.
 
 The photo of the ocean is from Northern California bay. I designed a new scientific technical process in which our thoughts may 
 make the 16-kilometer wide spacecraft appear above the ocean. The process requires a photograph recorded from the morning from 
-6:00am to 10:00am of the designated location of the ocean or bay for LOKD consciousness telecommunication or telemetry-radionics # (TREK). LOKD ( pronounced "locked") is a visualization technique to manifest and telecommunicate a technology and civilization 
-from the future year 8000. The objective is to network with a hypothetical interdimensional universe or extraterrestrial galactic # quadrant. The project requires recording hand-written tabular data unto a non-computerized notebook at intervals of 5 minutes per # VTR session (virtual visualization telecommunication). By simply visualizing in the blue sky above the ocean, a 23 kilometer-wide # boomerang shape spacecraft called the Supremacy from the Walt Disney motion film picture Star Wars. A digital print of the 
+6:00am to 10:00am of the designated location of the ocean or bay for LOKD consciousness telecommunication or telemetry-radionics (TREK). LOKD ( pronounced "locked") is a visualization technique to manifest and telecommunicate a technology and civilization 
+from the future year 8000. The objective is to network with a hypothetical interdimensional universe or extraterrestrial galactic  quadrant. The project requires recording hand-written tabular data unto a non-computerized notebook at intervals of 5 minutes per  VTR session (virtual visualization telecommunication). By simply visualizing in the blue sky above the ocean, a 23 kilometer-wide boomerang shape spacecraft called the Supremacy from the Walt Disney motion film picture Star Wars. A digital print of the 
 spacecraft Supremacy must be placed next to the electromagnetic field detector (EMF - use a K2). The participant must be 
-monitored with the Emotiv EEG headband during the visualization process. This can be accomplished while standing in front of the # view of the ocean waves or the bay in daylight.
+monitored with the Emotiv EEG headband during the visualization process. This can be accomplished while standing in front of the  view of the ocean waves or the bay in daylight.
 
 
 Works Cited
