@@ -4,12 +4,14 @@
  Components In Virtual Teleportation (SORA)
  2018SEP10 Scientific Observatory Research | Alan Arqueza
 
- Scientific updates time-stamped.
+Scientific updates time-stamped.
 https://orcid.org/0000-0001-7065-2635
-http://www.researcherid.com/rid/R-2104-2018
- Linkedin https://www.linkedin.com/in/alanarqueza
 
- source: https://www.arqueza.net/blog/vtr-components.html
+http://www.researcherid.com/rid/R-2104-2018
+
+Linkedin https://www.linkedin.com/in/alanarqueza
+
+source: https://www.arqueza.net/blog/vtr-components.html
 
 Project SORA is Scientific Observatory Acoustics Research for communication and control of the 7-kilometer wide triangle aerial 
 spacecraft of 1997 Phoenix Lights event. SORA is the observation of psychic telecommunication with advanced civilizations of 
