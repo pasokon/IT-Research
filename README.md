@@ -5,6 +5,7 @@
  2018SEP10 Scientific Observatory Research | Alan Arqueza
 
 Scientific updates time-stamped.
+
 https://orcid.org/0000-0001-7065-2635
 
 http://www.researcherid.com/rid/R-2104-2018
